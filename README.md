@@ -1,0 +1,2 @@
+# ISmidterms
+Thomas, kian, edith
